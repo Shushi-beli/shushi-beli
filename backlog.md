@@ -8,3 +8,4 @@ tener tele
 tener internet
 tener buen diseño en el local
 tener limpia el area de trabajo
+https://planningpokeronline.com/qD23CbdvYb5CTvQYIgzN/
